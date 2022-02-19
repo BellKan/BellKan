@@ -1,4 +1,4 @@
-### Iae? ᙖє꒒꒒ꀘαꈤ na voz kkkk!
+### OI pessoal aqui é o ᙖє꒒꒒ꀘαꈤ!
 
 ##
 
