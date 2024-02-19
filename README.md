@@ -1,4 +1,4 @@
-### OI pessoal aqui é o ᙖє꒒꒒ꀘαꈤ!
+### OI pessoal aqui é o Augusto!
 
 ##
 
